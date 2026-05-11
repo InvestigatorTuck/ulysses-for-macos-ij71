@@ -1,4 +1,4 @@
-
+Get the ultimate Ulysses for macOS extension with Ulysses for macOS ultimate Extension - note encryption and calendar integration. Featuring note encryption and calendar
 
 
 
